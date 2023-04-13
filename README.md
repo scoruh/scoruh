@@ -1,5 +1,5 @@
 # 💫 About Me:
-🥱 No status
+🤓 NOTHING
 
 
 ## 🌐 Socials:
